@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓 I'm actually studing on Universidad Politécnica de Valencia
+📚 I'm actually studing on Universidad Politécnica de Valencia
 
 
 ## 🌐 Socials:
